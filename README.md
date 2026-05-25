@@ -42,7 +42,7 @@
 
 <h align="center">$${\color{#DE3535}  "DOUBLESㅤ ‎DNI!"}$$</h>
 
-<h align="center">$${\color{#DE3535}  DNT}$$</h>
+<h align="center">$${\color{#DE3535}  "DNT"}$$</h>
 
 <h align="center">$${\color{#DE3535}  justㅤ ‎chronicallyㅤ ‎onlineㅤ ‎pplㅤ ‎ok‎}$$</h>
 
