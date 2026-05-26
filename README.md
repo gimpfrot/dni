@@ -42,8 +42,6 @@
 
 <h align="center">$${\color{#DE3535}  "DOUBLES ‎DNI!"}$$</h>
 
-<h align="center">$${\color{#DE3535}  just‎ ‎chronically ‎online ‎ppl ‎ok‎}$$</h>
-
 </p>
 
 <img src="https://i.postimg.cc/MpF562jF/tumblr-11694261dc90ca2c30a0835bd5209650-70a28bd5-1280.jpg">
