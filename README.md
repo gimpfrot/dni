@@ -18,11 +18,9 @@
 
 <h align="center">$${\color{#DE3535}  -14,ㅤ ‎ 21+}$$</h>
 
-<h align="center">$${\color{#DE3535}  EPSTEIN/ISRAELㅤ ‎JOKES}$$</h>
+<h align="center">$${\color{#DE3535}  EPSTEIN/ISRAEL ‎"JOKES"}$$</h>
 
 <h align="center">$${\color{#DE3535}  BIGOTS}$$</h>
-
-<h align="center">$${\color{#DE3535}  LESBOYS}$$</h>
 
 </p>
 
@@ -40,13 +38,11 @@
 
 <p align="center">
 
-<h align="center">$${\color{#DE3535}  NONSHARINGㅤ ‎YUMES}$$</h>
+<h align="center">$${\color{#DE3535}  NONSHARING ‎YUMES}$$</h>
 
-<h align="center">$${\color{#DE3535}  "DOUBLESㅤ ‎DNI!"}$$</h>
+<h align="center">$${\color{#DE3535}  "DOUBLES ‎DNI!"}$$</h>
 
-<h align="center">$${\color{#DE3535}  "DNT"}$$</h>
-
-<h align="center">$${\color{#DE3535}  justㅤ ‎chronicallyㅤ ‎onlineㅤ ‎pplㅤ ‎ok‎}$$</h>
+<h align="center">$${\color{#DE3535}  just‎ ‎chronically ‎online ‎ppl ‎ok‎}$$</h>
 
 </p>
 
