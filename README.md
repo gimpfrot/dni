@@ -16,10 +16,6 @@
 
 <h align="center">$${\color{#DE3535}  RADQUEER}$$</h>
 
-<h align="center">$${\color{#DE3535}  -14,ㅤ ‎ 21+}$$</h>
-
-<h align="center">$${\color{#DE3535}  EPSTEIN/ISRAEL ‎"JOKES"}$$</h>
-
 <h align="center">$${\color{#DE3535}  BIGOTS}$$</h>
 
 </p>
@@ -41,6 +37,8 @@
 <h align="center">$${\color{#DE3535}  NONSHARING ‎YUMES}$$</h>
 
 <h align="center">$${\color{#DE3535}  "DOUBLES ‎DNI!"}$$</h>
+
+<h align="center">$${\color{#DE3535}  -14,ㅤ ‎ 21+}$$</h>
 
 </p>
 
